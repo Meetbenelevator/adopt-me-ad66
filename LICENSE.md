@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with custom Script for adopt me, the #1 Script. Includes auto-farm and auto-collect for unbeatable performance.
 
 
 
